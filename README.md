@@ -1,2 +1,5 @@
-# simple-aj
-I want to be a full stack developer and I am looking for people that want to learn programming with me.
+# master-alicred
+
+I love drinking ☕ and playing 🎮!
+Passionate Software Developer 👨‍💻!
+Coding for me is like playing a puzzle and mystery 🎮!
